@@ -15,5 +15,5 @@ proyecto destacado
 Contacto
 * **LinkedIn:** [linkedin.com/in/rojas-milpas-victor-hugo](https://www.linkedin.com/in/rojas-milpas-victor-hugo)
 * **Correo:** milpasl21@gmail.com
-* **Teléfono: 5614678120
+* **Teléfono:** 5614678120
 
